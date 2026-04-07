@@ -6,7 +6,7 @@
   
 not chronically online + vanish sometimes . CUSS alot otherwise temper is always neutrally fine
 
-dyslexic + anomic aphasia ; insensitive + hyperactive adhd
+dyslexic + anomic aphasia ; insensitive + hyperactive ADHD (or ADD only)
 
 BASICS & PRIDE: cis fem . seventeen and i must age no more . heptamênaios . daughter of apollo
 
